@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @marshii
+- 👋 Hi, I’m @Marsh
 - 👀 I’m interested in games & sports xd
 - 🌱 I’m currently learning soccer o-o
 - 💞️ I’m looking to collaborate on getting better at sports
